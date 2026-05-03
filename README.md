@@ -5,7 +5,7 @@
 ### <p align="center">Alice or Placid | 18</p>
 
 <p align="center">
-  <img src="https://files.catbox.moe/3ir6zn.png" alt="" width="572" />
+  <img src="https://files.catbox.moe/3ir6zn.png" alt="" width="372" />
 </p>
 
 <p align="center"><a href="https://rentry.co/salarexvogali">rentry</a>&nbsp; &nbsp;,&nbsp; &nbsp;<a href="https://placidday.atabook.org/">ata</a>&nbsp; &nbsp;,&nbsp; &nbsp;<a href="https://github.com/PLACIDDAY">main</a></p>
