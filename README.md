@@ -10,7 +10,7 @@
 
 <p align="center"><a href="https://goldenixian.straw.page/">sp</a>&nbsp; &nbsp;,&nbsp; &nbsp;<a href="https://placidday.atabook.org/">ata</a>&nbsp; &nbsp;,&nbsp; &nbsp;<a href="https://github.com/PLACIDDAY">main</a></p>
 <p align="center">alt github for idv theme.</p>
-<p align="center">my biggest dni is ophalice shippers.<br />i love alice x anyone else besides orpheus (or minors).</p>
+<p align="center">my biggest dni is ophalice shippers.<br />i love alice x anyone else besides orpheus (or minors).<br />personal faves are naibalice, nortalice, alimelly, florialice, hernalice.</p>
 <p align="center">cuddles are always open when i'm alone.<br />if i'm with someone, ask!</p>
 
 ###
